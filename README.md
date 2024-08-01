@@ -1,7 +1,0 @@
-- 👋 Hi, I’m @NoccianWrath
-- 👀 I’m interested in people!
-- 🌱 I’m currently learning people!
-- 💞️ I’m looking to collaborate on people!
-- 📫 How to reach me: Contact me on X.
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: I like Jinx the cat!

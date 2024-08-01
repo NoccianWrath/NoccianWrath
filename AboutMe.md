@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NoccianWrath, AKA Noccy, AKA Rafter :P
+- 👀 I’m interested in developing games on Roblox!
+- 🌱 I’m currently learning a few languages and I'm testing things out!
+- 💯 I'm available to help if need me to.
+- 📫 How to reach me: Contact me on X, Roblox or Discord.
+- ℹ️ Pronouns: she/her
+- 💡 Fun fact: I like Jinx the cat!
